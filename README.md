@@ -1,0 +1,1 @@
+# NXPowerLite-Desktop-10.2.2-Crack
